@@ -62,12 +62,12 @@ https://rahul-cse324.github.io/Team-Protfolio/
    📧 Email: teamsamras6@gmail.com
 
    LinkedIn:      
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">RAHUL DAS </a>
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">ANKITA DEY </a>
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">ANNAYA BHATTA </a>
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">MAINAK SAHA </a>
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">SAYAN SARKAR </a>
-<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">SOMNATH SAHOO </a>
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">RAHUL DAS </a>,
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">ANKITA DEY </a>,
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">ANNAYA BHATTA </a>,
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">MAINAK SAHA </a>,
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">SAYAN SARKAR </a>,
+<a href="https://www.linkedin.com/in/rahul-das-2770a9330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" target="_blank">SOMNATH SAHOO </a>,
 
 ---
 
